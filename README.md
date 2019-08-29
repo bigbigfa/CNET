@@ -1,1 +1,1 @@
-# CNET s
+# CNET
